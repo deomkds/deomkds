@@ -1,1 +1,1 @@
-Siga-me no Twitter: @deomkds
+Siga-me no Bluesky: @deomkds
